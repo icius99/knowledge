@@ -1,0 +1,81 @@
+---
+tags:
+  - resource
+Area: "[[Cooking]]"
+---
+![[Pasted image 20241208125040.png]]
+
+This Instant Pot Lemon Chicken with Garlic - the perfect easy meal for spring. Best of all, this chicken cooks up tender, juicy and full of flavor with instructions for the pressure cooker and stovetop.
+
+Course Main Course
+
+Cuisine American
+
+Keyword chicken, dinner, garlic, Instant Pot, Instant Pot chicken recipe, lemon, one pot, stove
+
+Prep Time 9 minutes
+
+Cook Time 20 minutes
+
+Total Time 29 minutes
+
+Servings 6 servings
+
+Calories 366 kcal
+
+Author Kelly
+
+### Ingredients
+
+- 6-8 boneless chicken thighs , skinless or with skin*
+- sea salt and pepper to taste
+- 1/2 teaspoon garlic powder
+- 1/2 teaspoon smoked paprika
+- 1/2 teaspoon red chili flakes optional or to taste
+- 2 Tablespoons olive oil
+- 3 Tablespoons butter (swap with ghee for paleo OR Whole30)
+- 1/2 small onion chopped
+- 4 garlic cloves sliced or minced
+- Juice of 1 lemon
+- 2-4 teaspoons Italian seasoning
+- zest of half a lemon
+- 1/3 cup homemade or low sodium chicken broth **PLEASE SEE NOTES BELOW
+- 2 Tablespoons heavy cream OR coconut cream
+- Chopped fresh parsley and lemon slices for garnish , if desired
+
+#### Tools:
+
+- Instant Pot I have the 6 Quart Instant Pot DUO
+- OR Cast Iron Skillet
+
+### Instructions
+
+1. Season the chicken with salt, pepper, garlic powder, paprika, and chili flakes.  
+    
+
+#### To cook in the Instant Pot:
+
+1. Press the Sauté function (Normal setting) on the Instant Pot and add the olive oil to the pot. (I use a 6 Quart Instant Pot DUO)  
+    
+2. Place chicken in the Instant Pot and cook on each side for 2-3 minutes, or until golden brown. This helps to seal in the juices and keep it tender. (You may have to work in batches depending on the size and amount of chicken you are using). Once browned, remove from Instant Pot and set aside.
+    
+    Melt butter in Instant Pot and stir in the onions and garlic. Add lemon juice to deglaze pan and cook for 1 minute. Add Italian seasoning, lemon zest, and chicken broth.
+    
+    Place the chicken back into the Instant Pot, lock the lid, and turn the valve to SEALING.
+    
+3. Select the Manual (older models) or Pressure Cook (newer models) button and adjust the timer to 7 minutes.
+    
+    It will take about 5-10 minutes to come to pressure and start counting down.
+    
+    When done, release the pressure after 2 minutes, then remove your Instant Pot lid.
+    
+4. Remove chicken from Instant Pot using tongs and set aside on a large serving plate. Stir in heavy cream (if using) into the Instant Pot. If you like your sauce thicker - you can thicken with a cornstarch slurry (if not low carb) or arrowroot starch slurry (or xanthan gum) by mixing 1/2 teaspoon cornstarch (arrowroot starch) mixed with 1 teaspoon cold water). Press off and turn Instant Pot to SAUTE function. Cook and allow the sauce to bubble and thicken. Turn off and add chicken back to the Instant Pot to coat with sauce. Spoon sauce over chicken and sprinkle with chopped parsley. Serve with your favorite sides and garnish with lemon slices, if desired.
+    
+
+#### To cook on the stove:
+
+1. In a medium-sized skillet over medium-high heat add olive and cook for 4-5 on each side, or until chicken reaches 165 degrees. Transfer browned chicken to plate and set aside.  
+    
+2. Return pan back to heat and melt butter. Stir in onion and garlic. Add lemon juice to deglaze the pan and cook for 1 minute. Add Italian seasoning, lemon zest, and chicken broth. Stir in heavy cream [if you like your sauce thicker - you can thicken with a cornstarch slurry (if not low carb) or arrowroot starch slurry (or xanthan gum) by mixing 1/2 teaspoon cornstarch (arrowroot starch) mixed with 1 teaspoon cold water].  
+    
+    Once the sauce has bubbled and thickened up slightly, add the chicken back into the pan until hot. Spoon sauce over chicken and sprinkle with chopped parsley. Serve with your favorite sides and garnish with lemon slices, if desired.
